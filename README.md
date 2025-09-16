@@ -1,9 +1,14 @@
-# 💌 moor ⚓️ faith
+# 💌 moor faith ⚓️
 
-Please note this version has been revised and annotated. ⛔ **NOT** ⛔ the same as [source](https://hermetic.com/moorish/7koran), often referred to as Circle 7 Koran.
+
+
+📆 Please note this version has been revised and annotated. ⛔ **NOT** ⛔ the same as [source](https://hermetic.com/moorish/7koran), often referred to as Circle 7 Koran.
 
 
 [i/we](https://www.johnnykuo.com) can weave in elements from tai-chi, buddhism, new testament, poetry, etc.
+
+
+<img src="https://raw.githubusercontent.com/jkuo45/moor-faith/main/img/ch46_notes.jpeg" width="450" alt="chapter 46: love, truth, peace, freedom, justice">
 
 
 suggestions, errors, feedback: please send to email@johnnykuo.com
