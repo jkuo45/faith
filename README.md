@@ -1,8 +1,17 @@
-# ⚓️ moor faith
+# 💌 moor ⚓️ faith
 
-[☝️ Chapter 01: The Creation and Fall of Man](https://www.johnnykuo.com/chapter-01-the-creation-and-fall-of-man)
+Please note this version has been revised and annotated. ⛔ **NOT** ⛔ the same as [source](https://hermetic.com/moorish/7koran), often referred to as Circle 7 Koran.
 
-```Time never was when man was not. If life of a man at any time began, a time would come when it would end...```
+
+[i/we](https://www.johnnykuo.com) can weave in elements from tai-chi, buddhism, new testament, poetry, etc.
+
+
+suggestions, errors, feedback: please send to email@johnnykuo.com
+
+
+## Chapters
+
+[Chapter 01: The Creation and Fall of Man](https://www.notion.so/Chapter-01-The-Creation-and-Fall-of-Man-253f52c20e7781cfbdf7ec4c241a835d?pvs=21)
 
 [Chapter 02: Mary and Elizabeth](https://www.notion.so/Chapter-02-Mary-and-Elizabeth-253f52c20e7781b6b67be30407c31465?pvs=21)
 
@@ -42,7 +51,7 @@
 
 [Chapter 38: The Soul of Man](https://www.notion.so/Chapter-38-The-Soul-of-Man-253f52c20e77814796a4e00684663a5c?pvs=21)
 
-[Chapter 39: The Pinnacle of Wisdom [wip]](https://www.notion.so/Chapter-39-The-Pinnacle-of-Wisdom-wip-267f52c20e7780d1abd4c7fcd833b82b?pvs=21)
+[Chapter 39: The Pinnacle of Wisdom](https://www.notion.so/Chapter-39-The-Pinnacle-of-Wisdom-267f52c20e7780d1abd4c7fcd833b82b?pvs=21)
 
 [Chapter 40: The Instability of Man](https://www.notion.so/Chapter-40-The-Instability-of-Man-253f52c20e7781f485aad93b1bb84330?pvs=21)
 
@@ -54,15 +63,7 @@
 
 [Chapter 44: Misery](https://www.notion.so/Chapter-44-Misery-255f52c20e7780a994b6dba168f5b45d?pvs=21)
 
-[Chapter 45: The Divine Origin of the Asiatic Nations](https://www.notion.so/Chapter-45-The-Divine-Origin-of-the-Asiatic-Nations-25cf52c20e77807da6e1e578f3f47f93?pvs=21)
-
 [Chapter 46: The Beginning of Christianity](https://www.notion.so/Chapter-46-The-Beginning-of-Christianity-25bf52c20e778028abb5dbc73077b0f5?pvs=21)
-
-
-source: https://hermetic.com/moorish/7koran (grain of salt🧂)
-
-
-site: [www.johnnykuo.com](https://www.johnnykuo.com)
 
 ---
 
