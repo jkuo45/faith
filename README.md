@@ -1,75 +1,54 @@
-# 💌 moor faith ⚓️
+# 💌 aquarian gospel and moorish text
 
 
+**Chapter 46 (moorish):5-9**
 
-📆 Please note this version has been revised and annotated. ⛔ **NOT** ⛔ the same as [source](https://hermetic.com/moorish/7koran), often referred to as Circle 7 Koran.
+5. The holy teachings of Jesus was to common people, to redeem them from under the great pressure of the hands of the unjust. That the rulers and the rich would not oppress the poor. Also that the lion 🦁 and the lamb 🐑 may lay down together and neither would be harmed when morning came 🌅.
+6. These teachings were not accepted ❌ by the rulers, neither [nor] by the rich[*ish*] because they loved the principles of the 🔟 ten commandments.
+7. Through the 🔟 ten commandments the rulers and the rich[*ish*] live, while the poor[*ish*] suffer and die.
+8. The lamb is the poor people, the lion is the rulers. Through Love, Truth, Peace, Freedom, and Justice all men are ☝️one and equal to **seek their own destiny; and to worship under their own vine and fig tree**. After the principles of the holy and divine laws of their forefathers.
+9. All nations of the earth 🌍 in these modern days are seeking peace, but there is only one way that peace may be obtained. It is through:
 
+<p style="text-align: center; padding: 8px; opacity:75%">
+    <img src="https://raw.githubusercontent.com/jkuo45/faith/main/img/ch46_notes.jpeg" width="450" alt="chapter 46: love, truth, peace, freedom, justice">
+</p>
 
-[i/we](https://www.johnnykuo.com) can weave in elements from tai-chi, buddhism, new testament, poetry, etc.
+Love`❤️, `Truth`🧠, `Peace`✌️, `Freedom,`and`Justice`⚖️
 
-
-<img src="https://raw.githubusercontent.com/jkuo45/moor-faith/main/img/ch46_notes.jpeg" width="450" alt="chapter 46: love, truth, peace, freedom, justice">
-
-
-suggestions, errors, feedback: please send to email@johnnykuo.com
-
-
-## Chapters
-
-[Chapter 01: The Creation and Fall of Man](https://www.notion.so/Chapter-01-The-Creation-and-Fall-of-Man-253f52c20e7781cfbdf7ec4c241a835d?pvs=21)
-
-[Chapter 02: Mary and Elizabeth](https://www.notion.so/Chapter-02-Mary-and-Elizabeth-253f52c20e7781b6b67be30407c31465?pvs=21)
-
-[Chapter 03: The Unity of Life](https://www.notion.so/Chapter-03-The-Unity-of-Life-25ef52c20e778049ac31d211e9b0dbbc?pvs=21)
-
-[Chapter 04: The Ministry of Death](https://www.notion.so/Chapter-04-The-Ministry-of-Death-25ef52c20e778005b883dcc173a69379?pvs=21)
-
-[Chapter 07: Meaning of Truth](https://www.notion.so/Chapter-07-Meaning-of-Truth-25ef52c20e77808682c3ea355fb29943?pvs=21)
-
-[Chapter 08: Sinful Ways](https://www.notion.so/Chapter-08-Sinful-Ways-25ef52c20e77803c8859ca557f7626ef?pvs=21)
-
-[Chapter 20: Holy Instructions and Warnings for All Young Men](https://www.notion.so/Chapter-20-Holy-Instructions-and-Warnings-for-All-Young-Men-253f52c20e77814ba7bdf89a4306cc60?pvs=21)
-
-[Chapter 21: Marriage Instructions for Man and Wife](https://www.notion.so/Chapter-21-Marriage-Instructions-for-Man-and-Wife-253f52c20e77811daf94e27f3637b014?pvs=21)
-
-[Chapter 22: Duty of a Husband](https://www.notion.so/Chapter-22-Duty-of-a-Husband-253f52c20e7781cfaf9ae8e72e50b3d1?pvs=21)
-
-[Chapter 26: Holy Instructions on Unity](https://www.notion.so/Chapter-26-Holy-Instructions-on-Unity-253f52c20e7781f7b57acdfe8f7743c5?pvs=21)
-
-[Chapter 27: The Holy Unity of the Rich and Poor](https://www.notion.so/Chapter-27-The-Holy-Unity-of-the-Rich-and-Poor-25cf52c20e77802db311e3bb9c48b78c?pvs=21)
-
-[Chapter 29: Magistrate and Subject ](https://www.notion.so/Chapter-29-Magistrate-and-Subject-25df52c20e778067841be54b2decedd6?pvs=21)
-
-[Chapter 30: Social Duties](https://www.notion.so/Chapter-30-Social-Duties-253f52c20e7781878c2cf374d41d090f?pvs=21)
-
-[Chapter 31: Justice](https://www.notion.so/Chapter-31-Justice-253f52c20e77815f9f7ffc5622ede89f?pvs=21)
-
-[Chapter 32: Charity](https://www.notion.so/Chapter-32-Charity-25df52c20e778026b85fcde8c8ee81ad?pvs=21)
-
-[Chapter 33: Gratitude](https://www.notion.so/Chapter-33-Gratitude-253f52c20e77819fbf2dc02bd3b85705?pvs=21)
-
-[Chapter 34: Sincerity](https://www.notion.so/Chapter-34-Sincerity-253f52c20e77817ba420ce275b6811c6?pvs=21)
-
-[Chapter 36: Know Thyself](https://www.notion.so/Chapter-36-Know-Thyself-253f52c20e7781359e77c4a2b351969a?pvs=21)
-
-[Chapter 37: The Breath of Heaven](https://www.notion.so/Chapter-37-The-Breath-of-Heaven-253f52c20e7781b597aaf9ace19218c6?pvs=21)
-
-[Chapter 38: The Soul of Man](https://www.notion.so/Chapter-38-The-Soul-of-Man-253f52c20e77814796a4e00684663a5c?pvs=21)
-
-[Chapter 39: The Pinnacle of Wisdom](https://www.notion.so/Chapter-39-The-Pinnacle-of-Wisdom-267f52c20e7780d1abd4c7fcd833b82b?pvs=21)
-
-[Chapter 40: The Instability of Man](https://www.notion.so/Chapter-40-The-Instability-of-Man-253f52c20e7781f485aad93b1bb84330?pvs=21)
-
-[Chapter 41: Inconstancy](https://www.notion.so/Chapter-41-Inconstancy-263f52c20e778076b8b4d929ed8b4af6?pvs=21)
-
-[Chapter 42: Weakness (**弱**)](https://www.notion.so/Chapter-42-Weakness-264f52c20e77806ca3b2ec9e3db5e2c1?pvs=21)
-
-[Chapter 43: Insufficiency of Knowledge](https://www.notion.so/Chapter-43-Insufficiency-of-Knowledge-25bf52c20e77801ca1cac0556b71e4ce?pvs=21)
-
-[Chapter 44: Misery](https://www.notion.so/Chapter-44-Misery-255f52c20e7780a994b6dba168f5b45d?pvs=21)
-
-[Chapter 46: The Beginning of Christianity](https://www.notion.so/Chapter-46-The-Beginning-of-Christianity-25bf52c20e778028abb5dbc73077b0f5?pvs=21)
+| Description | Section | aquarian | moorish |
+|---|---|---|---|
+| [The Creation and Fall of Man](https://www.johnnykuo.com/chapter-01-the-creation-and-fall-of-man) | NA | NA | Chapter 01 |
+| [The Birth and Early Life of Mary](https://www.johnnykuo.com/chapter-01-birth-and-early-life-of-mary) | I | Chapter 01 | NA |
+| [The Birth and Early Infancy of The Harbinger](https://www.johnnykuo.com/chapter-02-the-birth-and-infancy-of-the-harbinger) | II | Chapter 02 | NA |
+| [The Birth of Jesus](https://www.johnnykuo.com/chapter-03-the-birth-of-jesus) | II | Chapter 03 | NA |
+| [The Consecration of Jesus](https://www.johnnykuo.com/chapter-03-the-birth-of-jesus) | II | Chapter 04 | NA |
+| [Magian Priests Protect Jesus from Herod](https://www.johnnykuo.com/chapter-05-magian-priests-protect-jesus-from-herod) | II | Chapter 05 | NA |
+| [Herod Tries to Kill John and Jesus](https://www.johnnykuo.com/chapter-06-herod-tries-to-kill-john-and-jesus) | II | Chapter 06 | NA |
+| [Mary and Elizabeth](https://www.johnnykuo.com/chapter-02-mary-and-elizabeth) | III | Chapter 07 | Chapter 02 |
+| [The Unity of Life (Elihu)](https://www.johnnykuo.com/chapter-03-the-unity-of-life) | III | Chapter 08 | Chapter 03 |
+| [Salome's Lessons](https://www.johnnykuo.com/chapter-09-salome-s-lessons-tao-balance) | III | Chapter 09 | NA |
+| [Elihu's Lessons on Abraham and Priests](https://www.johnnykuo.com/chapter-10-elihu-s-lessons-abraham-priests) | III | Chapter 10 | NA |
+| [Elihu's Lessons (Buddhism)](https://www.johnnykuo.com/chapter-11-elihu-s-lessons-buddhism) | III | Chapter 11 | NA |
+| [Salome and Elihu's Lessons (Prayer/Preparation)](https://www.johnnykuo.com/chapter-12-salome-prayer-and-elihu-preparation) | III | Chapter 12 | NA |
+| [Sin and Forgiveness](https://www.johnnykuo.com/aq-chapter-13-sin-and-forgiveness) | IV | Chapter 13 | NA |
+| [The Power of Man to Choose and Attain](https://www.johnnykuo.com/chapter-14-the-power-of-man-to-choose-and-attain) | IV | Chapter 14 | NA |
+| [The Ministry of Lifetimes](https://www.johnnykuo.com/chapter-04-the-ministry-of-lifetimes) | IV | Chapter 15 | Chapter 04 |
+| [Our Crown of Righteousness](https://www.johnnykuo.com/chapter-16-our-crown-of-righteousness) | V | Chapter 16 | NA |
+| [Jesus and the Ten Commands](https://www.johnnykuo.com/chapter-17-jesus-and-the-ten-1-commandments) | V | Chapter 17 | NA |
+| [Jesus and Hillel (prominent Jewish priest, author)](https://www.johnnykuo.com/chapter-18-jesus-and-hillel-jewish-priest) | V | Chapter 18 | NA |
+| [Jesus Interprets the prophecy in Isaiah Chapter 29](https://www.johnnykuo.com/chapter-19-jesus-interprets-isiah-chapter-29) | V | Chapter 19 | NA |
+| [Symbolic Meaning of Tools](https://www.johnnykuo.com/chapter-05-symbolic-meaning-of-tools-carpenter) | V | Chapter 20 | Chapter 05 |
+| [LIfe and Works of Jesus in India amongst Moslems](https://www.johnnykuo.com/chapter-06-life-and-works-of-jesus-in-india-among-muslims) | VI | Chapter 21 | Chapter 06 |
+| [The Meaning of Truth](https://www.johnnykuo.com/chapter-07-meaning-of-truth) | VI | Chapter 22 | Chapter 07 |
+| [Harmony is Health](https://www.johnnykuo.com/chapter-23-harmony-is-health) | VI | Chapter 23 | NA |
+| [Gospel of Equality (Caste System)](https://www.johnnykuo.com/chapter-24-gospel-of-equality-caste-system) | VI | Chapter 24 | NA |
+| [Gospel of Equality (Law of Equity and Right)](https://www.johnnykuo.com/chapter-25-gospel-of-equality-law-of-equity-and-right) | VI | Chapter 25 | NA |
+| [Idolatry/Sinful Ways](https://www.johnnykuo.com/chapter-08-idolatry-sinful-ways) | VI | Chapter 26 | Chapter 08 |
+| [Human Equality](https://www.johnnykuo.com/chapter-09-human-equality) | VI | Chapter 27 | Chapter 09 |
+| [The Unity of God and Man](https://www.johnnykuo.com/chapter-10-unity-of-god-and-man) | VI | Chapter 28 | Chapter 10 |
 
 ---
 
-**Love ❤️, Truth 🧠, Peace ✌️, Freedom 🍇, Justice ⚖️**
+<p style="margin-top: 30px">
+suggestions, errors, feedback: please send to email @ johnnykuo.com
+</p>
