@@ -13,7 +13,7 @@
     <img src="https://raw.githubusercontent.com/jkuo45/faith/main/img/ch46_notes.jpeg" width="450" alt="chapter 46: love, truth, peace, freedom, justice">
 </p>
 
-Love`❤️, `Truth`📕, `Peace`✌️, `Freedom 🍇,`and`Justice ⚖️
+Love`❤️, Truth`📕, Peace`✌️, Freedom 🍇,`and Justice ⚖️
 
 | Description | Section | aquarian | moorish |
 |---|---|---|---|
