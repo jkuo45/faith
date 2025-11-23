@@ -46,7 +46,7 @@ Love`❤️, `Truth`🧠, `Peace`✌️, `Freedom,`and`Justice`⚖️
 | [Idolatry/Sinful Ways](https://www.johnnykuo.com/chapter-08-idolatry-sinful-ways) | VI | Chapter 26 | Chapter 08 |
 | [Human Equality](https://www.johnnykuo.com/chapter-09-human-equality) | VI | Chapter 27 | Chapter 09 |
 | [The Unity of God and Man](https://www.johnnykuo.com/chapter-10-unity-of-god-and-man) | VI | Chapter 28 | Chapter 10 |
-
+| [Kingdom of The Holy One (God, Allah, 上帝)](https://www.johnnykuo.com/chapter-29-kingdom-of-the-holy-one-god-allah) | VI | Chapter 29 | NA |
 ---
 
 <p style="margin-top: 30px">
