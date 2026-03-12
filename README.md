@@ -1,4 +1,4 @@
-# 💌 The Aquarian Gospel and Moorish Koran
+# 💌 the aquarian gospel and circle 7 koran
 
 [**Chapter 46:5-9 (moorish)**](https://www.johnnykuo.com/the-circle-7-koran)
 
@@ -7,7 +7,8 @@
 6. These teachings were not accepted ❌ by the rulers, neither [nor] by the rich[*ish*] because they loved the principles of the 🔟 ten commandments.
 7. Through the 🔟 ten commandments the rulers and the rich[*ish*] live, while the poor[*ish*] suffer and die.
 8. The lamb is the poor people, the lion is the rulers. Through Love, Truth, Peace, Freedom, and Justice all men are ☝️one and equal to **seek their own destiny; and to worship under their own vine and fig tree**. After the principles of the holy and divine laws of their forefathers.
-9. All nations of the earth 🌍 in these modern days are seeking peace, but there is only one way that peace may be obtained. It is through: **Love** ❤️, **Truth** 🧠, **Peace** ✌️, **Freedom** 🌊, **Justice** ⚖️
+9. All nations of the earth 🌍 in these modern days are seeking peace, but there is only one way that peace may be obtained. It is through: **Love** ❤️, **Truth** 🧠, **Peace** ✌️, **Freedom** 
+🍇, **Justice** ⚖️
 
 <p style="text-align: center; padding: 7px; opacity:70%">
     <img src="https://raw.githubusercontent.com/jkuo45/faith/main/img/ch46_notes.jpeg" width="450" alt="chapter 46: love, truth, peace, freedom, justice">
@@ -31,7 +32,7 @@
 | Chapter 09 | [Salome’s Lessons](https://www.johnnykuo.com/chapter-09-salome-s-lessons-tao-balance) | III | `NA` |
 | Chapter 10 | [Elihu’s Lessons (Abraham and Priests)](https://www.johnnykuo.com/chapter-10-elihu-s-lessons-abraham-priests) | III | `NA` |
 | Chapter 11 | [Elihu’s Lessons (Buddhism)](https://www.johnnykuo.com/chapter-11-elihu-s-lessons-buddhism) | III | `NA` |
-| Chapter 12 | [Salome and Elihu’s Lessons (Prayer/Preparation)](https://www.johnnykuo.com/chapter-12-salome-prayer-and-elihu-preparation) | III | `NA` |
+| Chapter 12 | [Prayer and Preparation](https://www.johnnykuo.com/chapter-12-salome-prayer-and-elihu-preparation) | III | `NA` |
 | Chapter 13 | [Sin and Forgiveness](https://www.johnnykuo.com/aq-chapter-13-sin-and-forgiveness) | IV | `NA` |
 | Chapter 14 | [The Power of Man to Choose and Attain](https://www.johnnykuo.com/chapter-14-the-power-of-man-to-choose-and-attain) | IV | `NA` |
 | Chapter 15 | [The Ministry of Lifetimes](https://www.johnnykuo.com/chapter-04-the-ministry-of-lifetimes) | IV | Chapter 04 |
