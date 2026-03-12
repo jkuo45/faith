@@ -1,7 +1,7 @@
 [project]
-name = "faith-qur"
+name = "faith"
 version = "0.1.0"
-description = "Add your description here"
+description = "Buddhism, The Aquarian Gospel of Jesus Christ, Christianity"
 readme = "README.md"
 requires-python = ">=3.12"
 dependencies = []
